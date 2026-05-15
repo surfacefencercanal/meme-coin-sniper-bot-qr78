@@ -1,4 +1,4 @@
-# 
+# vip meme coin sniper bot | private-RPC-nodes + liquidity-sniping is the best meme coin sniper bot, featuring private-RPC-nodes and liquidity-sniping. Fast, smart, and optimized
 
 
 
